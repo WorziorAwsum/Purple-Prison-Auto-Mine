@@ -1,0 +1,2 @@
+# Purple-Prison-Auto-Mine
+PRESS J TO START ONCE U HAVE LAUNCHED IT
